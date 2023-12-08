@@ -20,3 +20,21 @@ Moscow, Idaho, United States
 Agencies looking to write policies
 
 resource protection
+
+Perceptions of change
+
+
+HUman self-destruction theory
+- for individual and group size survival
+- now resource constrained
+
+Public affairs office
+- leads
+
+RII Track-2: Where We Live
+
+Local and Place Based Adaptation to Climate Change in Underserved Rural Communities
+Strategic Plan due May 31, 2024
+Year 1 report due July 1, 2024
+
+
